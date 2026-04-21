@@ -82,8 +82,8 @@ Looking for a professional website?
 
 **Let’s build something that truly represents your business.**
 
-📧 **[codezyteapplicationsweb@gmail.com](mailto:codezyteapplicationsweb@gmail.com)**
-📧 **[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/codezyweb/)**
+✉️ **[codezyteapplicationsweb@gmail.com](mailto:codezyteapplicationsweb@gmail.com)**
+📧 **[Instagram : codezyweb](mailto:codezyweb))**
 
 ---
 
